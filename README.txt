@@ -1,1 +1,1 @@
-Personal Photo Blog :)
+Food for Thought :)
